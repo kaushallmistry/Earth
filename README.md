@@ -1,4 +1,4 @@
 Mera Bharat Mahan,
-Our ultimate goal is Dharman
+Our ultimate goal is Dharmantaran
 Sunny is here.
 
